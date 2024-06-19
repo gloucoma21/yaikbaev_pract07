@@ -1,0 +1,1 @@
+# yaikbaev_pract07
